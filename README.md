@@ -1,5 +1,3 @@
 # Bruh
 
-тестимhhhh
-nhhb
-bggg
+test
