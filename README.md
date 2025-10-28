@@ -1,3 +1,2 @@
 # Bruh
-эщкереdccccbbbbvgggg
-uuhhоhhhhhhhbbx RT hb
+ого
