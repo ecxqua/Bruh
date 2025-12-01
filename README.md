@@ -1,2 +1,2 @@
 # Bruh
-swaga
+swagaj
